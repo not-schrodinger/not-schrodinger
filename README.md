@@ -1,5 +1,6 @@
 # Hi there 👋
 
-## I'm Rouge Chemist Erwin Shrodinger, and i didnt kill the cat c'mon guys.
+## I'm Rouge Chemist Erwin Shrodinger. 
 
-### k Bye.
+## Sun is down, freezing cold 🥶
+
